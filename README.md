@@ -1,1 +1,2 @@
-# theforage-cognizant-artificial-intelligence-
+![Screenshot (814)](https://github.com/Afreen02dec2002/theforage-cognizant-artificial-intelligence-/assets/164108310/8b3c7e68-fdcb-42dd-a827-b53491c29a8e)
+🚀 Thrilled to share that I've successfully completed the Cognizant Artificial Intelligence Job Simulation program by Forage! 🌟 This immersive experience has empowered me with hands-on skills and insights into the dynamic world of AI, preparing me for the challenges and opportunities that lie ahead in the rapidly evolving tech landscape. Grateful for the invaluable knowledge gained and excited to apply it to drive innovation and create meaningful impact. #AI #ArtificialIntelligence #FutureReady #ContinuousLearning #Cognizant #Forage
